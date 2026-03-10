@@ -92,5 +92,5 @@ Seeking Data Analyst / Business Analyst roles where I can apply:
 
 # 📫 Connect With Me
 
-LinkedIn: Add link
+LinkedIn: <to be added>
 GitHub: https://github.com/angithareji
